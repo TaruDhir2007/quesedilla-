@@ -1,0 +1,1 @@
+flour, vegetables, mozerella cheese, ketchup, chilly sauce, spices,water and oil.
